@@ -19,14 +19,6 @@ I can be found where the poeple are few and drinks many. In love with [data](htt
 
 ***
 
-## References
+## Project Vault
 
-### Design
-
-* Based on [Hyde](http://hyde.getpoole.com/) by [`@mdo`](https://twitter.com/mdo).
-
-### Icons
-
-* [Wreath](https://thenounproject.com/term/laurel-wreath/203146/) by [Nick Abrams](https://thenounproject.com/nabrams/) from the [Noun Project](https://thenounproject.com/).
-
-[usr]: /how-to-find-a-short-username
+* R Programming project [vault](http://johncoene.github.io/projects).
