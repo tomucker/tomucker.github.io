@@ -1,0 +1,31 @@
+# Permalinks
+permalink:        pretty
+
+# Setup
+url:              ''
+
+# Set to '' in case of hosting on `http://<your-github-name>.github.io`
+baseurl:          ''
+
+title:            Babylas
+
+# Markdown enabled, however don't use more than one paragraph (enforced by `>`)
+description:      >
+  Young epicurian's feeble attempt at reviving the  Age of the Enlightenment
+
+# The tags listed as entries in the sidebar
+sidebar_tags:     [politics, economics]
+
+# Fallback image and color if not overwritten for tag or post
+image:            /public/img/Spinoza.jpg
+color:            '#A85641'
+
+author:
+  name:           'Jean-Philippe Babylas Coene'
+  twitter:        jdatap
+  github:         JohnCoene
+  photo:          /public/img/about.jpg
+
+  # Markdown enabled, can use multiple paragraphs (enabled by `|`)
+  about:          |
+    Babylas values data and liberty and writes in a seemingly desperate attempt to revive the values of the rolled back Enlightenment period.
