@@ -17,7 +17,7 @@ The backlash from the smaller players who were to be priced out of the market by
 
 It should have ended then. It didn't.
 
-The triangulated pyramidion position allows one to shift stance towards the other end of the political spectrum (when loosing support from one faction, please the other) and, instead pass a bill far more harsh than any republican could ever hope for at the time. Bill and Hill' did not just "get away with it", they managed to appear in the guise of victims fallen to an unscrupulous pressure group in their just fight for a honorable cause, having, on the way, reaped donations from the very lobby they portrayed as evil and robbed the republicans of a political victory. Manipulative brilliance.
+The triangulated pyramidion position allows one to shift stance towards the other end of the political spectrum (when loosing support from one faction, please the other) and, instead pass a bill far more harsh than any republican could ever hope for at the time. Bill and Hill' did not just "get away with it", they managed to appear in the guise of victims fallen to an unscrupulous pressure group in their just fight for a honorable cause, having, at the same time, reaped donations from the very lobby they portrayed as evil and robbed the republicans of a political victory. Manipulative brilliance.
 
 Democrats only owned 43 percent of Congress at the time, the bill had no chance to pass and that, they very well realised. This was also evident to Dick Morris who knew that, the President had recently been elected and "against all odds" (thanks to his strategy) and that Bill's already meager reputation could only dwindle to further depths from his inaugural address onwards, if the plan could not be approved then, it would never be. 
 
