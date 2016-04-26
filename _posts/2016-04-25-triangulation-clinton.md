@@ -35,4 +35,6 @@ She eventually recapitulated this [drivel](https://www.youtube.com/watch?v=6I1-r
 > Every loving couple & family deserves to be recognized & treated equally under the law across our nation. #LoveMustWin #LoveCantWait.
 > --<cite>Hillary Clinton, April 2015</cite>
 
-I would have thought that the nature of such a strategy would make it unsustainable as such inconsistencies came to light, but the counted ballots as of early 2016 cast suggest it is---despite the latter flaw---still very much viable.
+I would have thought that the nature of such a strategy would make it unsustainable as such inconsistencies came to light, but the counted ballots as of early 2016 cast suggest it is---despite the latter flaw---still very much viable. 
+
+There is also a feeling that she is somehow *owed* the presidency. After all, this is the logical next step in her career, everything she has done culminates in this candidacy, her life's not worth if she doesn't at least get a shot. This zeitgeist sadly paves her way to the presidency and even her illegal use of a [personal email](https://github.com/JohnCoene/rodham) server in the basement of her private home will not hamper the stratagem.
