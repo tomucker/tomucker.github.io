@@ -7,7 +7,7 @@ url:              'http://johncoene.github.io'
 # Set to '' in case of hosting on `http://<your-github-name>.github.io`
 baseurl:          '/blog'
 
-title:            Babylas
+title:            Coenism
 
 # Markdown enabled, however don't use more than one paragraph (enforced by `>`)
 description:      >
@@ -28,4 +28,4 @@ author:
 
   # Markdown enabled, can use multiple paragraphs (enabled by `|`)
   about:          |
-    Babylas values data and liberty and writes in a seemingly desperate attempt to revive the values of the rolled back Enlightenment period.
+    Jean-Philippe Babylas Coene values data and liberty and writes in a seemingly desperate attempt to revive the values of the rolled back Enlightenment period.

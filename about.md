@@ -15,7 +15,7 @@ title: About
 
 {{ site.author.about }}
 
-I can be found where the drinks are many, and work in the realm of [data](http://johncoene.github.io/projects/).
+I can be found where the poeple are few and drinks many. In love with [data](http://johncoene.github.io/projects/) and squabbles over politics and religion.
 
 ***
 
