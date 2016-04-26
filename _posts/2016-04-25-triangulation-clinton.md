@@ -23,14 +23,14 @@ Democrats only owned 43 percent of Congress at the time, the bill had no chance 
 
 Much of that if not all, is still very much present in Hillary's Presidential candidacy. She did comb through the Republican program and stole its supportable ends while simultaneously distancing herself from her rival Bernie Sanders yet suggesting, at every opportunity, that she "is not that different from senator Sanders." Her strategy is nefarious and void of any value or principle. 
 
-Every political issue is in fact assessed in the opinion polls, she knows which view is prevalent among the public---at the time---and takes the corresponding stance. However, with time, public opinion changes and so must her message, hence being known for "changing position." 
+Every political issue is in fact assessed in opinion polls, she knows which view is prevalent among the public---at the time---and takes the corresponding stance. However, with time, public opinion changes and so must her message, hence being known for "changing position." 
 
 In the late nineties/early noughties marriage equality was scarcely supported, thus, to ride the wave of public opinion, it "made sense" for Bill to sign The Defense of Marriage Act and for Hillary to state:
 
 > Marriage has got historic, religious and moral content that goes back to the beginning of time, and I think a marriage is as a marriage has always been, between a man and a woman.
 > -- <cite>Hillary Clinton, January 2000</cite>
 
-She eventually recapitulated this [drivel](https://www.youtube.com/watch?v=6I1-r1YgK9I) in the senate four years later. It did not refrain her from dramatically changing her position on the issue, and in the most feeble manner to meet in many day's march at that, with a treacherous and revisionist rainbow-colored logo and a trivial tweet posted on April 28 2015, the day the Supreme Court was to hear arguments about same-sex marriage.
+She eventually recapitulated this [drivel](https://www.youtube.com/watch?v=6I1-r1YgK9I) in the senate four years later. But It did not refrain her from dramatically changing her position on the issue, and in the most feeble manner to meet in many day's march at that, with a slender rainbow-colored logo and a trivial tweet posted on April 28 2015, the day the Supreme Court was to hear arguments about same-sex marriage.
 
 > Every loving couple & family deserves to be recognized & treated equally under the law across our nation. #LoveMustWin #LoveCantWait.
 > --<cite>Hillary Clinton, April 2015</cite>
