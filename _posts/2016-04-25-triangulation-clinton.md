@@ -21,7 +21,7 @@ The triangulated pyramidion position allows one to shift stance towards the othe
 
 Democrats only owned 43 percent of Congress at the time, the bill had no chance to pass and that, they very well realised. This was also evident to Dick Morris who knew that, the President had recently been elected "against all odds" thanks to his strategy and that Bill's meager reputation would dwindle from his inaugural address onwards. If the plan could not be approved then, it would never be. 
 
-Much of that if not all, is still very much present in Hillary's Presidential candidacy. Like Bill in 1996, she combed through the Republican program to steal its supportable ends and, more improtantly its donors along with it. While simultaneously distancing herself from her rival Bernie Sanders, yet suggesting at every opportunity that she "is not that different from senator Sanders" and when told that her policies differs from that of Bernie she reminds us that she loyaly served under the Omaba administration so as to give the impression that she holds the Democrat's core values, eventually positioning herself in the convenient "middle." Her strategy is nefarious and void of any value or principle. 
+Much of that if not all, is still very much present in Hillary's Presidential candidacy. Like Bill in 1996, she combed through the Republican program to steal its supportable ends, and its donors along with it. While simultaneously distancing herself from her rival Bernie Sanders, yet suggesting at every opportunity that she "is not that different from senator Sanders" and when told that her policies differs from that of Bernie she reminds us that she loyaly served under the Omaba administration so as to give the impression that she holds the Democrat's core values, eventually positioning herself in the convenient "middle." Her strategy is nefarious and void of any value or principle. 
 
 Every political issue is in fact assessed in opinion polls, she knows which view is prevalent among the public---at the time---and takes the corresponding stance. However, with time, public opinion changes and so must her message, hence being known for "changing position." 
 
@@ -30,7 +30,7 @@ In the late nineties/early noughties marriage equality was scarcely supported, t
 > Marriage has got historic, religious and moral content that goes back to the beginning of time, and I think a marriage is as a marriage has always been, between a man and a woman.
 > -- <cite>Hillary Clinton, January 2000</cite>
 
-She eventually recapitulated this [drivel](https://www.youtube.com/watch?v=6I1-r1YgK9I) in the senate four years later. But It did not refrain her from dramatically changing her position on the issue, and in the most feeble manner to meet in many day's march at that, with a slender rainbow-colored logo and a trivial tweet posted on April 28 2015, the day the Supreme Court was to hear arguments about same-sex marriage.
+She eventually recapitulated this drivel in the senate four years later. But It did not refrain her from dramatically changing her position on the issue, and in the most feeble manner to meet in many day's march at that, with a slender rainbow-colored logo and a trivial tweet posted on April 28 2015, the day the Supreme Court was to hear arguments about same-sex marriage.
 
 > Every loving couple & family deserves to be recognized & treated equally under the law across our nation. #LoveMustWin #LoveCantWait.
 > --<cite>Hillary Clinton, April 2015</cite>
