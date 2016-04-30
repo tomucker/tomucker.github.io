@@ -39,4 +39,6 @@ I would have thought that the nature of such a strategy would make it unsustaina
 
 There is also a feeling that she is somehow *owed* the presidency. After all, this is the logical next step in her career, she has a legitimate claim to te throne. Everything she has done so far culminates in this candidacy, her life's not worth if she doesn't at least get a shot. This zeitgeist sadly paves her way to the presidency, even her illegal use of a personal email server in the basement of her private home will not hamper the stratagem.
 
-<li><a href="https://github.com/JohnCoene/rodham" target="_blank"><i class='fa fa-github'></i> rodham</a> - R package to download and extract Hilllary Rodham Clinton's emails.</li>
+*I despise Hillary so much it gives me energy to write the above as well as an R package to download and extract content from her "personal" emails.*
+
+<li><a href="https://github.com/JohnCoene/rodham" target="_blank"><i class='fa fa-github'></i> rodham</a> - <i>R package to download and extract Hilllary Rodham Clinton's emails.</i></li>
