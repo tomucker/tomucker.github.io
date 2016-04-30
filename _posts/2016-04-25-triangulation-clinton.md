@@ -1,23 +1,23 @@
 ---
 layout: post
-title: Clintonian triangulation, again
+title: Clintonian trigonometry
 tags: [politics]
 ---
 
 > Do not wish for smarter politians, wish for a smarter electorate.
 > --<cite>Christopher Hitchens</cite>
 
-The mere possibility of having another Clintonian term strikes me as frightening given rule of William Jefferson Clinton over the nineties comprised of a miasma of filthy political initiatives, personally motivated cruise missiles srikes, numerous rape accusations, questionable donations and other malignent exertions of force in which the then-first lady was---regrettably---involved. Nothing Jeffersonian but a slice of the name; he shall therefore be referred to as "Bill" so as to amputate his name like he severed Al-Shifa from Somalia.
+The mere possibility of having another Clintonian term strikes me as frightening given rule of William Jefferson Clinton over the nineties comprised of a miasma of filthy political initiatives, numerous rape accusations, questionable donations and other malignent exertions of authority in which the then-first lady was regrettably complicit. Nothing Jeffersonian but a slice of the name; he shall therefore be referred to as "Bill" so as to amputate his name like he severed Al-Shifa from Somalia.
 
-The Clintonian affliction is upon us once more, and though it is to be inflicted through the same political scheme, it is now to come from his female complement. Triangulation is the brilliant but dishonest political strategy coined by Bill's then-chief political advisor Dick Morris to get him reelected in 1996, and that, which is unfortunately very likely to get his complicit wife in office this time about.
+The Clintonian affliction is upon us once more, and though it is to be inflicted through the same political scheme it is now to come from his female complement. Triangulation is the brilliant but dishonest political strategy coined by Bill's then-chief political advisor Dick Morris to get him reelected in 1996 and that which is unfortunately very likely to get his complicit wife in office this time about.
 
 Hillary's health care plan, the brilliance of which was it's very failure, is the embodiment of triangulation and all that is morally wrong with it. In 1993 Bill set a task force headed by his wife to devise the plan; coverage would be financed by payroll taxes and delivered through regulated competition amongst *large* for-profit health maintenance organizations. The plan brought the worst of two worlds together, central planning and crony capitalism; there's nothing quite like guaranteed revenue and monopoly to either faction and as such was, contrary to popular belief, supported--through large donations---by the pharmaceutical industry, doctors, insurances, and many more. 
 
-The backlash from the smaller players who were to be priced out of the market by the plan was foreseeable---and likely expected---by the administration. Some healthcare providers mustered just about enough for a collective telley ad campaign denouncing Hillarycare, thereby providing the ideal scapegoat when the plan later fell under scrutiny and subsequently lost support. The aforementioned minute and mediocre opposing force that had dared to voice their disagreement was framed as emissary of the whole industry onto which all blame could be pilled. 
+The backlash from the smaller players who were to be priced out of the market by the plan was expected by the administration, it formed an essential part of the scheme: the third vertex of the triangle. Some healthcare providers mustered just about enough for a collective telley ad campaign denouncing Hillarycare,  providing the indispensable scapegoat when the plan later fell under scrutiny and subsequently lost support. The aforementioned minute and mediocre opposing force that had dared to voice its discontent was framed as emissary of the whole industry onto which all blame could be pilled. 
 
 It should have ended then. It didn't.
 
-The triangulated pyramidion position allows one to shift stance towards the other end of the political spectrum (when loosing support from one faction, please the other) and, instead pass a bill far more harsh than any republican could ever hope for at the time. Bill and Hill' did not just "get away with it", they managed to appear in the guise of victims fallen to an unscrupulous pressure group in their just fight for a honorable cause, having, at the same time, reaped donations from the very lobby they portrayed as evil and robbed the republicans of a political victory. Manipulative brilliance.
+The triangulated pyramidion position allows one to shift stance towards the other end of the political spectrum (when loosing support from one faction, please the other), and instead pass a bill far more harsh than any republican could ever hope for at the time. Bill and Hill' did not just "get away with it", they managed to appear in the guise of victims fallen to an unscrupulous pressure group in their just fight for a honorable cause, having, at the same time, reaped donations from the very lobby they portrayed as evil and robbed the republicans of a political victory. Manipulative brilliance.
 
 Democrats only owned 43 percent of Congress at the time, the bill had no chance to pass and that, they very well realised. This was also evident to Dick Morris who knew that, the President had recently been elected "against all odds" (thanks to his strategy) and that Bill's already meager reputation could only dwindle to further depths from his inaugural address onwards, if the plan could not be approved then, it would never be. 
 
