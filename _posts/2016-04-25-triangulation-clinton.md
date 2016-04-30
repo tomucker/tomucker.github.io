@@ -41,4 +41,4 @@ There is also a feeling that she is somehow *owed* the presidency. After all, th
 
 *I despise Hillary so much it gives me energy to write the above as well as an R package to download and extract content from her "personal" emails.*
 
-<li><a href="https://github.com/JohnCoene/rodham" target="_blank"><i class='fa fa-github'></i> rodham</a> - <i>R package to download and extract Hilllary Rodham Clinton's emails.</i></li>
+<li><a href="https://github.com/JohnCoene/rodham" target="_blank"><i class='fa fa-github'></i> rodham</a></li>
