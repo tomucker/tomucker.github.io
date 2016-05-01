@@ -4,8 +4,8 @@ title: Clintonian trigonometry
 tags: [politics]
 ---
 
-> Do not wish for smarter politians, wish for a smarter electorate.
-> --<cite>Christopher Hitchens</cite>
+> Proud, disdainful of restraint, indignant of all obstacles to her will, eager in the pursuit of pleasure, and firm enough to hold to her desires or perish in the wreck
+> --<cite>Thomas Jefferson on Marie Antoinette</cite>
 
 The mere possibility of having another Clintonian term strikes me as frightening given rule of William Jefferson Clinton over the nineties comprised of a miasma of filthy political initiatives, numerous rape accusations, questionable donations and other malignent exertions of authority in which the then-first lady was regrettably complicit. Nothing Jeffersonian but a slice of the name; he thus call him  "Bill" so as to amputate his name like he severed Al-Shifa from Somalia.
 
