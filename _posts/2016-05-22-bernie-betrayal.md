@@ -15,7 +15,7 @@ In the first country to enact a secular constitution and amidst a democratic GOP
 
 This reminds us that the man is very much human and capable of discreditable political moves in bids for votes. In the end one can only conclude that in Bernie's eyes the presidency is worth betraying principles he has been claiming to hold; honesty is a virtue we now know he possesses not. 
 
-It also hints at his deficiency in dealing with anything foreign. Bernie himself tells us that the did not think this through at all, "it was such an hnour, I could not refuse." Yes you could. The poor fool did not even attempt to assess wether this was compatible with his world view and core values. This is somewhat regrettable, it should be unchallenging for Hillary's rival to shine on the subject of foreign policy considering her record as secretary of state has been a disaster.  
+It also hints at his deficiency in dealing with anything foreign. Bernie himself tells us that the did not think this through at all, "it was such an honour, I could not refuse." Yes you could. The poor fool did not even attempt to assess wether this was compatible with his world view and core values. This is somewhat regrettable, it should be unchallenging for Hillary's rival to shine on the subject of foreign policy considering her record as secretary of state has been a disaster.  
 
 > "He’s a Catholic rockstar, Pope Francis has made it cool to be a Christian again."
 > --<cite>says Prudence Bradley, 19 (National Report)</cite>
@@ -25,9 +25,6 @@ But what is most irritating is Bernie's use of the Pope as endorsement. Firstly 
 > He [Francis] is trying to inject this sense of morality into how we do economics... and we need that absolutely desperately.
 > --<cite>Bernie Sanders</cite>
 
-You know some bull~~shit~~ is about to follow when one says "how we do economics," even more so when it comes from the central planner. Leaving the prose aside; it is the totalitarian socialist who "does" economics. Bernie did not comment on the Centesimus Annus to which he was invited, all his remarks concern his controversial 5-minute encounter with Pope Francis, though we can assume he repeated himself once more... ("millionaires and billionaires...").
+Bernie did in fact not comment on the Centesimus Annus to which he was invited, all his remarks concern his controversial 5-minute encounter with Pope Francis, though we can assume he repeated himself once more... ("millionaires and billionaires...").
 
-I would love to know Bernie's opinion on the Church only recent exonaration of the Jews for the death of Jesus Christ by Pope Benedict, before which the heathen Sanders could not have been invited at all.
-
-* economic disaster of central planning
-* past as activist
+I would rather hear Bernie's opinion on the Church's only recent exonaration of the Jews for the death of Jesus Christ by Pope Benedict, before which the heathen Sanders could not have been invited at all.
