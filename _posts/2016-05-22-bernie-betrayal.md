@@ -25,6 +25,4 @@ But what is most irritating is Bernie's use of the Pope as endorsement. Firstly 
 > He [Francis] is trying to inject this sense of morality into how we do economics... and we need that absolutely desperately.
 > --<cite>Bernie Sanders</cite>
 
-Bernie did in fact not comment on the Centesimus Annus to which he was invited, all his remarks concern his controversial 5-minute encounter with Pope Francis, though we can assume he repeated himself once more... ("millionaires and billionaires...").
-
-I would rather hear Bernie's opinion on the Church's only recent exonaration of the Jews for the death of Jesus Christ by Pope Benedict, before which the heathen Sanders could not have been invited at all.
+Bernie did in fact not comment on the Centesimus Annus to which he was invited, all his remarks concern his controversial 5-minute encounter with Pope Francis, though we can assume he repeated himself once more... ("millionaires and billionaires..."). I would much rather hear Bernie's thoughts on the Church's only recent exonaration of the Jews for the death of Jesus Christ by Pope Benedict, before which the heathen Sanders could not have been invited at all.
