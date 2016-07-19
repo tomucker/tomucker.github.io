@@ -6,7 +6,7 @@ tags: [politics]
 > My people are going to learn the principles of democracy the dictates of truth and the teachings of science. Superstition must go. Let them worship as they will, every man can follow his own conscience provided it does not interfere with sane reason or bid him act against the liberty of his fellow men.
 >   --<cite>Mustafa Kemal Atatürk</cite>
 
-Democracy and secularism in Turkey are sadly bound to relapse as the attempted coup provides Erdogan with his best opportunity yet to consolidate power. 
+Democracy and secularism in Turkey are sadly in relapse as the attempted coup provides Erdogan with his best opportunity yet to consolidate power. 
 
 Authority is dangerously addictive to the impotent not only because it artificially rises their otherwise low confidence but also because they mistake it for authentic power. The former footballer now president of Turkey is foolishly fond of executive power and disdainful of Kemalism to such a degree he's had the world's largest palace constructed on the grounds of Atatürk Forest Farm and Zoo, a deliberate and lame insult. Such conduct effectively turns a presidency into a therapy.
 
