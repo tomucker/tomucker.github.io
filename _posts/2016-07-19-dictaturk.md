@@ -8,9 +8,7 @@ tags: [politics]
 
 Democracy and secularism in Turkey are sadly bound to relapse as the attempted coup provides Erdogan with his best opportunity yet to consolidate power. 
 
-As of the 19 July 2016 [Wikipedia](https://en.wikipedia.org/wiki/Turkey) still states that "Turkey is a democratic, secular, unitary, constitutional republic with a diverse cultural heritage," but for how long?
-
-The former semi-professional footballer now president of Turkey is foolishly fond of executive power and disdainful of Kemalism to such a degree he had the world's largest palace constructed on the grounds of Atatürk Forest Farm and Zoo. Authority is dangerously addictive to the impotent not only because they mistake it for power but also because it swells their otherwise low confidence. Such maniacal behaviour turns the presidency into a therapy at the cost of millions.
+Authority is dangerously addictive to the impotent not only because they mistake it for authentic power but also because it swells their otherwise low confidence. The former footballer now president of Turkey is foolishly fond of executive power and disdainful of Kemalism to such a degree as to have the world's largest palace constructed on the grounds of Atatürk Forest Farm and Zoo, a deliberate but lame insult. Such conduct effectively turns a presidency into a therapy.
 
 Erdogan is now purging the entire country of anyone who could take the slightest amount of power away from his little puny hands, starting with the greatest guardians of secular values in the region, the Turkish army. Nearly 3'000 military personnel have been dismissed, of which a disproportionally large number of high ranking officers: 103 generals and admirals. The government also sacked a fifth of the judiciary, 2'745 of its members and is detaining 755 judges.
 
@@ -22,4 +20,6 @@ In the late noughties, a teacher and hero of mine proudly taught my classmates a
 
 > Everything we see in the world is the creative work of women.
 > --<cite>Mustafa Kemal Atatürk</cite>
+
+As of the 19 July 2016 [Wikipedia](https://en.wikipedia.org/wiki/Turkey) still states that "Turkey is a democratic, secular, unitary, constitutional republic with a diverse cultural heritage," but for how long?
 
