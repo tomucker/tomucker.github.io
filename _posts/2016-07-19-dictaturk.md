@@ -16,10 +16,12 @@ It is important to understand that in Turkey where Erdogan ends democracy begins
 
 Turkey has freshly seen its freedom of expression and other liberties sharply decline, some media outlets have been taken over by the government others have been raided, social networks are either censored or blocked. It will take years to revert the work of Erdogan, the antithesis and demolisher of Atatürk's legacy, that is if it even takes place. The opposition is now inexistent or currently being wiped away and most saddening of all, despite nationwide protests against his authoritarian regime in 2013, the crook has managed to keep the majority on his side. 
 
-In the late noughties, a teacher and hero of mine proudly taught my classmates and me that Turkey was never going to become a totalitarian Islamic state, that the Turkish army was the defender the legacy of Atatürk and that it would never let the country fall into the hands of radicals, extremists or authoritarians. I recall learning about Ottomanism and Kemalism, sharing quotes by the Father of the Turks, and discussing whether Turkey should be part of the EU. I remember vividly my amazement and appreciation for Atatürk's understanding of game theory and political brilliance when I learned that in his effort to establish gender equality and dissuade women from covering themselves he made the veil mandatory for prostitutes. Please, Turkish comrades, do not let us be wrong!
+In the late noughties, a teacher and hero of mine proudly told me that Turkey was never going to become a totalitarian Islamic state, that the Turkish army was the defender the legacy of Atatürk and that it would never let the country fall into the hands of radicals, extremists or authoritarians. I recall being taught the difference between Ottomanism and Kemalism, sharing quotes by the Father of the Turks, and discussing with classmates whether Turkey should be part of the EU. I also remember vividly my amazement and appreciation for Atatürk's understanding of game theory and political brilliance when I learned that in his effort to establish gender equality and dissuade women from covering themselves he made the veil mandatory for prostitutes. 
 
 > Everything we see in the world is the creative work of women.
 > --<cite>Mustafa Kemal Atatürk</cite>
 
 As of the 19 July 2016 [Wikipedia](https://en.wikipedia.org/wiki/Turkey) still states that "Turkey is a democratic, secular, unitary, constitutional republic with a diverse cultural heritage," but for how long?
+
+Rise up Turkish comrades!
 
