@@ -18,4 +18,4 @@ Turkey has freshly seen its freedom of expression and other liberties sharply de
 
 In the late noughties, a teacher and hero of mine proudly taught my classmates and me that Turkey was never going to become a totalitarian Islamic state, that the Turkish army was the defender the legacy of Atatürk and that it would never let the country fall into the hands of radicals, extremists or authoritarians. I remember vividly learning about Ottomanism and Kemalism, sharing quotes by the Father of the Turks, and discussing whether Turkey should be part of the EU. Please, Turkish comrades, do not let us be wrong!
 
-As of the 19 July 2016 Wikipedia still states that "Turkey is a democratic, secular, unitary, constitutional republic with a diverse cultural heritage," but for how long?
+As of the 19 July 2016 [Wikipedia](https://en.wikipedia.org/wiki/Turkey) still states that "Turkey is a democratic, secular, unitary, constitutional republic with a diverse cultural heritage," but for how long?
