@@ -18,14 +18,14 @@ Turkey has freshly seen its freedom of expression sharply decline, some media ou
 
 The turkish army is notorious for coup d'états, it has successfully deposed three heads of state since 1960 when it first did so with only 38 members. Such a poorly executed attempt seems dubious and conspiracy theories are already rampant. But it is more interesting to understand the reason for the failure to be such a unifying force amongst the populace. After all, the current government has mostly passed policies that deliberately reduce civil liberties and the vilian Erdogan has not yet grasped enough power to be feared by the populace. The support for his government demonstatred in the streets of Ankara is therefore genuine, but why? 
 
-Most know why but are afraid to name it, it is undeniably because of religion. As I have expressed before in recent years secularism in Turkey has regressed to give way to a religion in particular and religion is by nature is totalitarian. It is not enough that the follower believes, others must believe in it too. Particularly in the case of Islam which takes care of every thing for you: from mariage to banking. There is indeed no such thing as Shariah law, Shariah actually means law.
-
-How disheartening it is to see secular governments worldwide siding with the religious and abandonning the real victims of this tragedy, the secular Turkish forces and institutions (namely the Diyanet). Contrary to popular belief Turkey is *not*a Muslim state, Islam is only the most represented religion in a secular state. The Ottoman caliphate has been abolished for now 93 years and the country has been a democracy ever since. 
+Secularism is nugatory once it favors one religion over others but democracy does not ensure the keeping of such principle, neither does it contemplates the right thing will done. It only means the majority gets what it wants, be it evil.
 
 In the late noughties, a teacher and hero of mine *proudly* told me that Turkey was never going to become a totalitarian Islamic state, that the Turkish army was the defender Atatürk's gift to the nation and that it would never let the country fall into the hands of radicals, extremists or authoritarians. I recall being taught the difference between Ottomanism and Kemalism, sharing quotes by the Father of the Turks, and discussing with classmates whether Turkey should be part of the EU. I also remember vividly my amazement and appreciation for Atatürk's understanding of game theory and political brilliance when I learned that in his effort to establish gender equality and dissuade women from covering themselves he made the veil mandatory for prostitutes. 
 
 > Everything we see in the world is the creative work of women.
 > --<cite>Mustafa Kemal Atatürk</cite>
+
+I cannot help but get sick on my own shoes when I see secular governments worldwide siding with the religious and abandonning the real victims of this tragedy, the secular Turkish forces and institutions. Western governments must stop considering such forces and allies as trivial, there are in Turkey, Iraq and elsewhere laic movements who truly need support.
 
 As of the 19 July 2016 [Wikipedia](https://en.wikipedia.org/wiki/Turkey) still states that "Turkey is a democratic, secular, unitary, constitutional republic with a diverse cultural heritage," but for how long?
 
