@@ -14,8 +14,8 @@
 economics:
   name: Economics
   image: /blog/public/img/adam-smith.jpg
-  color: '#949667'
-  description: > 
+  color: '#679496'
+  description: >
     Moving from a society of status to a society of contract was the great liberator of the people.
 
 politics:
