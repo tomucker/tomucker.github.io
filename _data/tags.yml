@@ -1,4 +1,4 @@
-# Add an entry, where the key represents a slug.
+# Add an entry, where the key represents a slug.n
 # Provide at least a `name` value and optionally `image`, `color` and `description`.
 # Markdown is enabled for `description`, however don't use more than one paragraph (enforced by `>`)
 #
@@ -15,7 +15,7 @@ economics:
   name: Economics
   image: /blog/public/img/adam-smith.jpg
   color: '#949667'
-  description: >
+  description: > 
     Moving from a society of status to a society of contract was the great liberator of the people.
 
 politics:
