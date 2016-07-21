@@ -20,7 +20,7 @@ It also hints at his deficiency in dealing with anything foreign. Bernie himself
 > "He’s a Catholic rockstar, Pope Francis has made it cool to be a Christian again."
 > --<cite>says Prudence Bradley, 19 (National Report)</cite>
 
-But what is most irritating is Bernie's use of the Pope as endorsement. Firstly this is the other way about, the Pope sought the backing of the senator in an attempt to appeal to his (young) voters. Secondly it discredits your economic plan but to have it endorsed by the economically illeterate.
+But what is most irritating is Bernie's use of the Pope as endorsement. First, this is the other way about, the Pope sought the backing of the senator in an attempt to appeal to his (young) voters. Second, it discredits your economic plan but to have it endorsed by the economically illeterate.
 
 > He [Francis] is trying to inject this sense of morality into how we do economics... and we need that absolutely desperately.
 > --<cite>Bernie Sanders</cite>
