@@ -39,3 +39,6 @@ validation-report.json
 
 # Folders to ignore
 node_modules
+
+# posts
+2016-07-21-dictaturk.md
