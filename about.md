@@ -15,10 +15,12 @@ title: About
 
 {{ site.author.about }}
 
-I can be found where the people are few and drinks many. In love with [data](http://johncoene.github.io/projects/) and squabbles over politics, economics and religion. My main influences are Thomas Jefferson, Thomas Paine, Adam Smith, Friedrich Hayek, Chritopher Hitchens and Nassim Nicholas Taleb.
+I can be found where the people are few and drinks many. In love with [data](http://johncoene.github.io/projects/) and argument. 
+
+Influenced by Thomas Jefferson, Thomas Paine, Adam Smith, Friedrich Hayek, Chritopher Hitchens and Nassim Nicholas Taleb.
 
 ***
 
 ## Project Vault
 
-* R Programming project [vault](http://johncoene.github.io/projects).
+* R Programming [project vault](http://johncoene.github.io/projects).
