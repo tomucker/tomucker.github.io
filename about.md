@@ -21,6 +21,7 @@ Influenced by Thomas Jefferson, Thomas Paine, Adam Smith, Friedrich Hayek, Chrit
 
 ***
 
-## Project Vault
+## Links
 
 * R Programming [project vault](http://johncoene.github.io/projects).
+* [Resume](http://johncoene.github.io/projects)
