@@ -17,7 +17,7 @@ title: About
 
 I can be found where the people are few and drinks many. In love with [data](http://johncoene.github.io/projects/) and argument. 
 
-Influenced by Thomas Jefferson, Thomas Paine, Adam Smith, Friedrich Hayek, Chritopher Hitchens and Nassim Nicholas Taleb.
+Influenced by Thomas Jefferson, Thomas Paine, Adam Smith, Friedrich Hayek, Chritopher Hitchens, Frédéric Bastiat, and Nassim Nicholas Taleb.
 
 ***
 
