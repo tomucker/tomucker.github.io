@@ -1,6 +1,8 @@
 ---
 layout: post
 title: Priestly Bernie
+excerpt: Bernie Sanders is a man of principle who holds progressive values and defends just causes, his recent trip to the Vatican, however, says otherwise.
+author: mucker
 tags: [politics]
 ---
 

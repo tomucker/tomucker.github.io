@@ -1,5 +1,5 @@
 ---
-layout: post 
+layout: post
 title: Playing with Power
 tags: [politics]
 ---
@@ -9,9 +9,9 @@ tags: [politics]
 
 The niagara of uncritical publicity with which the European Union has been conveyed to us is deceitful.
 
-The European Union which centralises the power of 28 sovereign nations is void of self-limiting principles and has the extent of its power constantly widened, too few have considered the possible outcomes of such an organisation. 
+The European Union which centralises the power of 28 sovereign nations is void of self-limiting principles and has the extent of its power constantly widened, too few have considered the possible outcomes of such an organisation.
 
-> The way they've been building it top down from Brussels is doomed to fail. This is 2016. They are still thinking 1950 economics
+> The way they've been building it top down from Brussels is doomed to fail. This is 2016. They are still thinking 1950 economics.
 > --<cite>Nassim Nicholas Taleb</cite>
 
 * Decentralisation
@@ -24,7 +24,7 @@ The European Union which centralises the power of 28 sovereign nations is void o
 * Innovation, creativity, etc. not top down, happens low down the structure (never top)
 * Do you know Ode to Joy, your anthem
 * European College and European Movement International, creation of aristocracy, elite || very French = École nationale d'administration (ENA)
-* Collaboration of small states much different than centralised government (bottom-up vs top-down) 
+* Collaboration of small states much different than centralised government (bottom-up vs top-down)
 
 > The statesman who should attempt to direct private people in what manner they ought to employ their capitals would not only load himself with a most unnecessary attention, but assume an authority which could safely be trusted, not only to no single person, but to no council or senate whatever, and which would nowhere be so dangerous as in the hands of a man who had folly and presumption enough to fancy himself fit to exercise it.
 > --<cite>Adam Smith</cite>
