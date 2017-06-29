@@ -2,7 +2,7 @@
 layout: post
 title: Travel broadens naught
 tags: [society]
-excerpt: Traveling; exotic cocktails, idyllic weather, the abdication of all responsibility and time constraints for the space of a few days or weeks, which conveniently also makes one a better person. Never was anything so rewarding yet pleasurable.
+excerpt: Traveling; exotic cocktails, idyllic weather, the abdication of all responsibilities for the space of a few days, conveniently also makes one a better person. Never was anything so pleasurable yet rewarding.
 ---
 
 > The World is my country, all mankind are my brethren, and to do good is my religion.
