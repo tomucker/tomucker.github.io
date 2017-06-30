@@ -2,14 +2,15 @@
 layout: post
 title: Playing with Power
 tags: [politics]
+excerpt: The niagara of uncritical build-up of the European Union is intrinsically deceitful.
 ---
+
+The niagara of uncritical build-up of the European Union is intrinsically deceitful.
 
 > Probably it is true that the very magnitude of the outrages committed by the totalitarian governments, instead of increasing the fear that such a system might one day arise in more enlightened countries, has rather strengthened the assurance that it cannot happen here.
 > --<cite>Friedrich Hayek</cite>
 
-The niagara of uncritical publicity with which the European Union has been conveyed to us is deceitful.
-
-The European Union which centralises the power of 28 sovereign nations is void of self-limiting principles and has the extent of its power constantly widened, too few have considered the possible outcomes of such an organisation.
+The European Union centralises the power of 28 sovereign nations, is void of self-limiting principles, and sees the extent of its power constantly widened, too few have considered the possible outcomes of such an organisation.
 
 > The way they've been building it top down from Brussels is doomed to fail. This is 2016. They are still thinking 1950 economics.
 > --<cite>Nassim Nicholas Taleb</cite>
