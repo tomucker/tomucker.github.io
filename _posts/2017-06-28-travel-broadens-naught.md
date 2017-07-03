@@ -21,7 +21,9 @@ Though most like to claim being open to new ideas, no one actually wants to risk
 
 If traveling certainly does not make one unprejudiced, living abroad, at the very least forces one to face opposing points of view. Punters skim through a culture while expatriates are compelled to work, dine and sleep with different ideas. Interactions the tourist does not even contemplate. Leaving the echo chamber that is home, to live in a sphere where one disagrees with the consensus ultimately leads to enlightenment.
 
-One will also see many of its notions challenged, one will engage in heated discussions where one will have to defend its point of view while besieged by rival and cohesive arguments; ultimately winning some arguments and conceding others. This is a true test one's belief and identity that is guaranteed to make one change its stance on some issues and more knowledgeable person.
+One will see many of its notions challenged, one will engage in heated discussions where one will have to defend its point of view while besieged by rival and cohesive arguments; ultimately winning some and conceding others. This is a true test one's belief and identity that is guaranteed to make one change its stance on some issues to become a more knowledgeable person.
+
+The mind does not open itself to new ideas unless its preconceptions are violently challenged.
 
 I also cannot help but point out the numerous other ways that are at our disposal to improve our knowledge of society and others. You will learn much more about Russia and its history by reading Dostoevsky's Brothers Karamazov than by visiting Moscow. You will grasp a lot more about the United States by reading Thomas Paine's Rights of Man than by spending a few days in New York.
 

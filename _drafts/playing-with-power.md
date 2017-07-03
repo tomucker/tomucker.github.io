@@ -5,6 +5,8 @@ tags: [politics]
 excerpt: The niagara of uncritical build-up of the European Union is intrinsically deceitful.
 ---
 
+*This is most probably the first part of a series yet to be*
+
 The niagara of uncritical build-up of the European Union is intrinsically deceitful.
 
 > Probably it is true that the very magnitude of the outrages committed by the totalitarian governments, instead of increasing the fear that such a system might one day arise in more enlightened countries, has rather strengthened the assurance that it cannot happen here.
