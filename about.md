@@ -26,5 +26,6 @@ My writing certainly does not compare to that of the likes of Paine or Jefferson
 * Author of America - Christopher Hitchens
 * L'Ami du Peuple - Jean Paul Marat
 * United States Declaration of Independence
+* [The Fourth Quadrant](https://www.edge.org/conversation/nassim_nicholas_taleb-the-fourth-quadrant-a-map-of-the-limits-of-statistics) (essay) - Nassim Nicholas Taleb
 * [The Constitution of the United States](https://www.archives.gov/founding-docs/constitution-transcript)
 * [All of George Orwell's essays](http://gutenberg.net.au/ebooks03/0300011h.html)
